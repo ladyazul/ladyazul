@@ -2,7 +2,7 @@ Decided to make one for ponytown | go to @allhailhelios for my actual coding stu
 - U may copy any of my ponies idc . love for all. Just know all of mine are original I dont copy
 - I'm usually in the "Pokemon area" on the 18+ server, I play on the safe server sometimes too.
 - If we hit it off u may ask for my discord!
-![alt text]([https://github.com/adam-p/markdown-here/raw/master/src/common/images/icon48.png](https://file.garden/Zruzz_C1HzBK0sHv/minun.gif) "minun plusle")
+![alt text](https://file.garden/Zruzz_C1HzBK0sHv/minun.gif "minun plusle")
 
 <!--
 **ladyazul/ladyazul** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
