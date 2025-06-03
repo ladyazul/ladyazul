@@ -1,4 +1,7 @@
-## Hi there 👋
+Decided to make one for ponytown | go to @allhailhelios for my actual coding stuff :]
+- U may copy any of my ponies idc . love for all
+- I'm usually in the "Pokemon area" on the 18+ server, I play on the safe server sometimes too.
+- I am not actually a lady sorry to disappoint .....
 
 <!--
 **ladyazul/ladyazul** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
