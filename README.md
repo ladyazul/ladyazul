@@ -4,7 +4,6 @@ Decided to make one for ponytown
 - If we hit it off u may ask for my discord!
 - I might be off tab either working on a project (unlikely) or doing school work (more likely) so  whisper if it's important.
 - My interests are: **pokemon**, dbd, blazblue, and twewy. There's more, but I can talk about these for *hours*, esp pokemon.
-- no dni, but I tend to hide those who are openly pro/darkshippers and make me uneasy. Which is a majority of them.  Sorry
 
 ![alt text](https://file.garden/Zruzz_C1HzBK0sHv/minun.gif "minun plusle")
 
