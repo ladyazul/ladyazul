@@ -1,8 +1,10 @@
-Decided to make one for ponytown | go to @allhailhelios for my actual coding stuff :]
-- U may copy any of my ponies idc . love for all. Just know all of mine are original I dont copy
+Decided to make one for ponytown
+- U may copy any of my ponies idc . love for all.
 - I'm usually in the "Pokemon area" on the 18+ server, I play on the safe server sometimes too.
 - If we hit it off u may ask for my discord!
-- I'm usually off tab either working on a project or playing pokewilds so it's best to whisper
+- I might be off tab either working on a project (unlikely) or doing school work (more likely) so  whisper if it's important.
+- My interests are: **pokemon**, dbd, blazblue, and twewy. There's more, but I can talk about these for *hours*, esp pokemon.
+- no dni, but I tend to hide who are openly pro/darkshippers and make me uneasy. Which is a majority of them.  Sorry
 
 ![alt text](https://file.garden/Zruzz_C1HzBK0sHv/minun.gif "minun plusle")
 
