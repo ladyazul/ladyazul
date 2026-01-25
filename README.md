@@ -4,8 +4,7 @@ Decided to make one for ponytown
 - If we hit it off u may ask for my discord!
 - My interests are: **pokemon**, dbd, blazblue, and twewy. There's more, but I can talk about these for *hours*, esp pokemon.
 
-![alt text](https://file.garden/Zruzz_C1HzBK0sHv/minun.gif "minun plusle")
-
+![alt text](https://i.postimg.cc/mZQ3tsvc/sou2wvsyxu591.gif "pikachu")
 <!--
 **ladyazul/ladyazul** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
