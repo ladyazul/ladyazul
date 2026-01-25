@@ -5,6 +5,7 @@ Decided to make one for ponytown
 - My interests are: **pokemon**, dbd, blazblue, and twewy. There's more, but I can talk about these for *hours*, esp pokemon.
 
 ![alt text](https://i.postimg.cc/mZQ3tsvc/sou2wvsyxu591.gif "pikachu")
+
 "I'm Blue. Man, this guy called Red brought me down in a heartbeat. I haven't seen him in a long time...I wonder where he is and what he's up to… Come to think of it, you look a little bit like Red. Yeah, you do. Just...Just a little bit. Whatever..."
 <!--
 **ladyazul/ladyazul** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
