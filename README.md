@@ -4,7 +4,7 @@ Decided to make one for ponytown
 - If we hit it off u may ask for my discord!
 - My interests are: **pokemon**, dbd, blazblue, and twewy. Obv there's more but I can talk about these for hours, esp pokemon.
 
-"I'm Blue. Man, this guy called Red brought me down in a heartbeat. I haven't seen him in a long time...I wonder where he is and what he's up to… Come to think of it, you look a little bit like Red. Yeah, you do. Just...Just a little bit. Whatever..."
+I love to meet new ppl!! Talk to me!
 <!--
 **ladyazul/ladyazul** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
