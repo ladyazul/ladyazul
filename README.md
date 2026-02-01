@@ -1,6 +1,6 @@
 Decided to make one for ponytown
 - U may copy any of my ponies idc . love for all.
-- I'm usually in the "Pokemon area" on the 18+ server, I play on the safe server sometimes too.
+- I'm usually on the 18+ server, I play on the safe server sometimes too.
 - If we hit it off u may ask for my discord!
 - My interests are: **pokemon**, dbd, blazblue, and twewy. Obv there's more but I can talk about these for hours, esp pokemon.
 
